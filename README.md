@@ -1,4 +1,4 @@
-### Hi everyone I´m Rosa Sunum  👋🍄
+### Hi everyone I´m Rosa Sunum  👋
 
 ## About me
 Data Scientist | Climate Change Specialist 💦| Mycologist 🍄| Biologist
